@@ -14,3 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+Hi! My name's Rob, and this is the 6th time I've tried to do this
+I'm currently 31 years old and have trained race horses my entire life
+My pronouns are he/ him and I'm really easy going
+If you have any coding tips and tricks I would love to learn them
